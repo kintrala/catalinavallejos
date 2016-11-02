@@ -1,4 +1,5 @@
-# catalinavallejos
-Fine Art
+Catalina Vallejos
 
-Time Based Art
+American, born in Chile.
+
+Time Based Art 
